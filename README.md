@@ -1,0 +1,1 @@
+# dek-s-auto
